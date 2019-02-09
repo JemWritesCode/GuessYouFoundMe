@@ -14,8 +14,11 @@ Below was my answer key:
 Slack Message 1:
 
 Clue (0) - The Start
+
 *C O D I N G     C H A L L E N G E*
+
 You have 42 minutes!
+
 https://itsalmo.st/time-to-get-correction-points
 
 Work together to earn some CORRECTION POINTS! The more clues you find the more points you ALL get!
